@@ -1,0 +1,2 @@
+# CSCD_ASSIGNMENTS
+Education
